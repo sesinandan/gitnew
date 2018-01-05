@@ -1,0 +1,6 @@
+# gitnew
+
+
+
+hi 
+hru
